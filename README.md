@@ -1,5 +1,4 @@
 # Tutorial100
 github practice
-kjuihmnnmbyik.,mmnjhnmcdhruimnm,
-snsukmcipok
-mnxjhynmnjyj
+Open your mouth
+Ha ha ha
